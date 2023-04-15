@@ -1,2 +1,2 @@
 # Adaptive-Mail
-demo link-https://www.youtube.com/watch?v=wHM6RBjdWuM
+demo link-https://youtu.be/wHM6RBjdWuM
